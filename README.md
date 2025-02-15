@@ -2,7 +2,7 @@
 
 Gamdom has established itself as a premier online crypto casino, offering a diverse range of gaming options and generous promotions tailored for its global audience, including players from India. In 2025, Indian users can enhance their gaming experience by utilizing the exclusive promo code [**GAMBLE100**](https://gamdom.com/r/top100list), which grants a **15% instant rakeback** for the first seven days upon registration.
 
-## Latest Gamdom Promo Codes for Canada 2025
+## Latest Gamdom Promo Codes for India 2025
 | Product for India | Promo Code |  Gamdom bonus offer  |
 | ------------- | ------------- | ------------- |
 | 🎰 Gamdom Welcome Bonus  | GAMBLE100  | 15% instant rakeback  |
